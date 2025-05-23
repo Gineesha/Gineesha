@@ -1,4 +1,3 @@
-## Hi there 👋
 
 # Gineesha khakha
 # 💫 About Me:
